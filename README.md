@@ -1,1 +1,7 @@
-# Bakery_website
+![Screenshot 2025-01-17 102326](https://github.com/user-attachments/assets/2ea04739-f712-41bf-ac60-a4da8d6f2626)
+![Screenshot 2025-01-17 102342](https://github.com/user-attachments/assets/ebb5fc52-5000-4f6e-9825-dbfde2b42536)
+![Screenshot 2025-01-17 102401](https://github.com/user-attachments/assets/c56125d6-e996-460c-a0d6-d140a0b8c2fb)
+![Screenshot 2025-01-17 102504](https://github.com/user-attachments/assets/829fa32d-b9b7-4f0c-b9cc-3013edb85f6a)
+![Screenshot 2025-01-17 102526](https://github.com/user-attachments/assets/2e89c5b0-4e70-4a78-af15-651fdcaaa602)
+![Screenshot 2025-01-17 102545](https://github.com/user-attachments/assets/cc12eec5-5201-4f08-9c02-2ac998a30b72)
+![Screenshot 2025-01-17 102605](https://github.com/user-attachments/assets/c772085d-080a-4adc-bb01-3c09b6421995)
